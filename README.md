@@ -12,7 +12,7 @@
 𓂃𖥔˚✦ ̣̣ ۟ ︵ multimedia artist . editor . writer . #1 fan of all my f/o's (especially jackie welles & goro majima)...ᶻ 𝗓 𐰁 .ᐟ<img width="70 " height="70" alt="hey-choomba-jackie-welles" src="https://github.com/user-attachments/assets/4ee24af8-7b1b-4646-8b59-c065f3d38b25" />
 
 
-  .𖥔 ݁ ˖ 𖥔 ˖ read strawpage for about me ! <img width="30 " height="30" alt="tumblr_1774bd7171c80358c44b7bb1dc09e59c_e1ace0cf_500" src="https://github.com/user-attachments/assets/d557ab4b-a2b6-4de6-a5e4-568d3ef556fb" />
+  .𖥔 ݁ ˖  read strawpage for about me ! <img width="30 " height="30" alt="tumblr_1774bd7171c80358c44b7bb1dc09e59c_e1ace0cf_500" src="https://github.com/user-attachments/assets/d557ab4b-a2b6-4de6-a5e4-568d3ef556fb" />
  check out tiktok for art !
 
 // <img width="30 " height="30" alt="tumblr_9f6c80a85cd25abb21126e766c8c9271_caf3fbdb_75" src="https://github.com/user-attachments/assets/1d1f9832-2dcd-4e38-b521-c9e370dc1de1" />
@@ -20,7 +20,7 @@
 
 basic dni ' homophobes, transphobes, racists etc.
 
-(i simply block to curate my online experience. I’m a grown adult w a job & i’m focused on chillin’ and living my best life.)
+(i simply block to curate my online experience.)
 
 ˚˖𓍢.˚ tagtones not required but much appreciated if i don't know you !! ♔ ꙰
 
