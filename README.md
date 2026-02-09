@@ -11,20 +11,22 @@
 
 𓂃𖥔˚✦ ̣̣ ۟ ︵ multimedia artist . editor . writer . #1 fan of all my f/o's (especially jackie welles & goro majima)...ᶻ 𝗓 𐰁 .ᐟ<img width="70 " height="70" alt="hey-choomba-jackie-welles" src="https://github.com/user-attachments/assets/4ee24af8-7b1b-4646-8b59-c065f3d38b25" />
 
+‿̩͙⊱༒︎༻♱༺༒︎⊰‿̩͙
 
   .𖥔 ݁ ˖  read strawpage for about me ! <img width="30 " height="30" alt="tumblr_1774bd7171c80358c44b7bb1dc09e59c_e1ace0cf_500" src="https://github.com/user-attachments/assets/d557ab4b-a2b6-4de6-a5e4-568d3ef556fb" />
  check out tiktok for art !
 
 // <img width="10 " height="10" alt="tumblr_9f6c80a85cd25abb21126e766c8c9271_caf3fbdb_75" src="https://github.com/user-attachments/assets/1d1f9832-2dcd-4e38-b521-c9e370dc1de1" />
- feel free to int! ‘ if i don't reply it's not bc i'm uncomfy ! i'm usually offtab so w2i if you wish.
+. feel free to int! ‘ if i don't reply it's not bc i'm uncomfy ! i'm usually offtab so w2i if you wish.
 
-basic dni ' homophobes, transphobes, racists etc.
+★ no dni, if i don't like something, i'll just block & go on w/ my day.
 
-(i simply block to curate my online experience.)
+╰┈➤ˎˊ˗ i simply do so to curate my online experience. don't get upset if i do, we're not gonna int again ever!
+
+‿̩͙⊱༒︎༻♱༺༒︎⊰‿̩͙
 
 ˚˖𓍢.˚ tagtones not required but much appreciated if i don't know you !! ♔ ꙰
 
-...
 
 
 <img width="630" height="42" alt="tumblr_7a54c84595352d29d31f562c39fd884d_64e99437_2048" src="https://github.com/user-attachments/assets/0c3cc447-3a4a-467d-afca-4ae1cef15565" />
