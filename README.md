@@ -19,7 +19,7 @@
 // <img width="10 " height="10" alt="tumblr_9f6c80a85cd25abb21126e766c8c9271_caf3fbdb_75" src="https://github.com/user-attachments/assets/1d1f9832-2dcd-4e38-b521-c9e370dc1de1" />
 . feel free to int! ‘ if i don't reply it's not bc i'm uncomfy ! i'm usually offtab so w2i if you wish.
 
-★ no dni, if i don't like something, i'll just block & go on w/ my day.
+★ don't have much of a dni, if i don't like something, i'll just block & go on w/ my day.
 
 ╰┈➤ˎˊ˗ i simply do so to curate my online experience. don't get upset if i do, we're not gonna int again ever!
 
