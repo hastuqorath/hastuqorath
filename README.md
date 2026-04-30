@@ -5,11 +5,11 @@
 <img width="600 " height="600" alt="tumblr_938f67bd1c7d6b5a98158ef9d53e7e14_c152e776_540" src="https://github.com/user-attachments/assets/85684c1e-7fd2-4cc3-bc74-fc26a1a74f32" />
 
 
-<img width="10 " height="10" alt="tumblr_5973b1148d7eb605fb672c761560b559_1ca0d812_100" src="https://github.com/user-attachments/assets/7f19f1bf-1f02-4f0d-93a3-7675e5c01bf2" /> «𝘛𝘶 𝘳𝘦𝘧𝘭𝘦𝘫𝘰 𝘦𝘴 𝘮𝘪 𝘯𝘦𝘤𝘦𝘴𝘪𝘥𝘢𝘥 / 𝘚𝘪 𝘮𝘦 𝘮𝘶𝘦𝘳𝘰, 𝘮𝘦 𝘷𝘶𝘦𝘭𝘷𝘰 𝘢 𝘦𝘯𝘤𝘰𝘯𝘵𝘳𝘢𝘳 / 𝘜𝘯 𝘤𝘢𝘤𝘩𝘪𝘵𝘰 𝘥𝘦 𝘨𝘢𝘭𝘢𝘹𝘪𝘢♫
+<img width="10 " height="10" alt="tumblr_5973b1148d7eb605fb672c761560b559_1ca0d812_100" src="https://github.com/user-attachments/assets/7f19f1bf-1f02-4f0d-93a3-7675e5c01bf2" /> 𝕹𝖔 𝖙𝖎𝖊𝖓𝖊𝖘 𝖗𝖊𝖒𝖊𝖉𝖎𝖔, 𝖘𝖎𝖊𝖓𝖙𝖊𝖘 𝖉𝖊𝖒𝖆𝖘𝖎𝖆𝖉𝖔 / 𝕻𝖊𝖗𝖈𝖎𝖇𝖊𝖘 𝖑𝖆 𝖑𝖑𝖚𝖛𝖎𝖆 𝖆𝖓𝖙𝖊𝖘 𝖉𝖊 𝖖𝖚𝖊 𝖈𝖆𝖎𝖌𝖆 / 𝕾𝖎 𝖆𝖑𝖌𝖚𝖎𝖊𝖓 𝖙𝖊 𝖒𝖔𝖑𝖊𝖘𝖙𝖆 𝖕𝖔𝖗 𝖘𝖊𝖗 𝖉𝖎𝖋𝖊𝖗𝖊𝖓𝖙𝖊 / 𝕯𝖆𝖑𝖊𝖘 𝖕𝖆𝖈𝖎𝖊𝖓𝖈𝖎𝖆 / 𝕰𝖑𝖑𝖔𝖘 𝖘𝖔𝖓 𝖙𝖔𝖉𝖔𝖘 𝖎𝖌𝖚𝖆𝖑𝖊𝖘
 
 <img width="630" height="42" alt="tumblr_7a54c84595352d29d31f562c39fd884d_64e99437_2048" src="https://github.com/user-attachments/assets/0c3cc447-3a4a-467d-afca-4ae1cef15565" />
 
-𓂃𖥔˚✦ ̣̣ ۟ ︵ multimedia artist . editor . writer . nonsharing Jackie Welles selfshipper ...ᶻ 𝗓 𐰁 .ᐟ<img width="70 " height="70" alt="hey-choomba-jackie-welles" src="https://github.com/user-attachments/assets/4ee24af8-7b1b-4646-8b59-c065f3d38b25" />
+𓂃𖥔˚✦ ̣̣ ۟ ︵ artist . editor . writer . soulbound to jackie welles <3 ...ᶻ 𝗓 𐰁 .ᐟ<img width="70 " height="70" alt="hey-choomba-jackie-welles" src="https://github.com/user-attachments/assets/4ee24af8-7b1b-4646-8b59-c065f3d38b25" />
 
 ‿̩͙⊱༒︎༻♱༺༒︎⊰‿̩͙
 
