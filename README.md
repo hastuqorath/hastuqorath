@@ -6,9 +6,15 @@
 
 
 <img width="10 " height="10" alt="tumblr_5973b1148d7eb605fb672c761560b559_1ca0d812_100" src="https://github.com/user-attachments/assets/7f19f1bf-1f02-4f0d-93a3-7675e5c01bf2" /> 𝕹𝖔 𝖙𝖎𝖊𝖓𝖊𝖘 𝖗𝖊𝖒𝖊𝖉𝖎𝖔, 𝖘𝖎𝖊𝖓𝖙𝖊𝖘 𝖉𝖊𝖒𝖆𝖘𝖎𝖆𝖉𝖔 
+
 𝕻𝖊𝖗𝖈𝖎𝖇𝖊𝖘 𝖑𝖆 𝖑𝖑𝖚𝖛𝖎𝖆 𝖆𝖓𝖙𝖊𝖘 𝖉𝖊 𝖖𝖚𝖊 𝖈𝖆𝖎𝖌𝖆 
+
 𝕾𝖎 𝖆𝖑𝖌𝖚𝖎𝖊𝖓 𝖙𝖊 𝖒𝖔𝖑𝖊𝖘𝖙𝖆 𝖕𝖔𝖗 𝖘𝖊𝖗 𝖉𝖎𝖋𝖊𝖗𝖊𝖓𝖙𝖊 
+
+
 𝕯𝖆𝖑𝖊𝖘 𝖕𝖆𝖈𝖎𝖊𝖓𝖈𝖎𝖆 
+
+
 𝕰𝖑𝖑𝖔𝖘 𝖘𝖔𝖓 𝖙𝖔𝖉𝖔𝖘 𝖎𝖌𝖚𝖆𝖑𝖊𝖘
 
 <img width="630" height="42" alt="tumblr_7a54c84595352d29d31f562c39fd884d_64e99437_2048" src="https://github.com/user-attachments/assets/0c3cc447-3a4a-467d-afca-4ae1cef15565" />
