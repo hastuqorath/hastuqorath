@@ -19,7 +19,7 @@
 
 <img width="630" height="42" alt="tumblr_7a54c84595352d29d31f562c39fd884d_64e99437_2048" src="https://github.com/user-attachments/assets/0c3cc447-3a4a-467d-afca-4ae1cef15565" />
 
-𓂃𖥔˚✦ ̣̣ ۟ ︵ artist . editor . writer . soulbound to jackie welles <3 ...ᶻ 𝗓 𐰁 .ᐟ<img width="70 " height="70" alt="hey-choomba-jackie-welles" src="https://github.com/user-attachments/assets/4ee24af8-7b1b-4646-8b59-c065f3d38b25" />
+𓂃𖥔˚✦ ̣̣ ۟ ︵ artist . editor . writer . soulbound to jackie welles <3 nonsharing ...ᶻ 𝗓 𐰁 .ᐟ<img width="70 " height="70" alt="hey-choomba-jackie-welles" src="https://github.com/user-attachments/assets/4ee24af8-7b1b-4646-8b59-c065f3d38b25" />
 
 ‿̩͙⊱༒︎༻♱༺༒︎⊰‿̩͙
 
